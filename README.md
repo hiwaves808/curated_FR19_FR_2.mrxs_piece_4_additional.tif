@@ -1,0 +1,1 @@
+# curated_FR19_FR_2.mrxs_piece_4_additional.tif
